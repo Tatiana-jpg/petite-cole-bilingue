@@ -1,1 +1,1 @@
-# petite-cole-bilingue
+# petite-ecole-bilingue
